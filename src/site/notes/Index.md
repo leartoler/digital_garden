@@ -1,7 +1,7 @@
 ---
-{"dg-publish":true,"permalink":"/index/","tags":["gardenEntry"]}
+{"dg-publish":true,"dg-home":true,"permalink":"/index/","tags":["gardenEntry"],"dgPassFrontmatter":true}
 ---
 
 ## Images
 [[Images/Archaeological images\|Archaeological images]]
-[[Images/Archaeological Image Gallery\|Archaeological Image Gallery]]
+
