@@ -11,3 +11,6 @@
 ### [[digital_garden/02_Map/Words\|Words]]
 
 ### [[digital_garden/02_Map/Videogames\|Videogames]]
+
+### [[digital_garden/02_Map/Philosophy of technology\|Philosophy of technology]]
+
