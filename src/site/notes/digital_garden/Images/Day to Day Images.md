@@ -22,7 +22,7 @@
 
 ![5105135623269887761.jpg](/img/user/digital_garden/DB/5105135623269887761.jpg)
 
-![Pasted image 20250321232328.png](/img/user/Pasted%20image%2020250321232328.png)
+![Pasted image 20250321232328.png](/img/user/digital_garden/DB/Pasted%20image%2020250321232328.png)
 
-![Pasted image 20250321232344.png](/img/user/Pasted%20image%2020250321232344.png)
+![Pasted image 20250321232344.png](/img/user/digital_garden/DB/Pasted%20image%2020250321232344.png)
 
