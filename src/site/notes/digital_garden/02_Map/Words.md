@@ -6,7 +6,4 @@
 
 ### [[digital_garden/03_Map/Poetry\|Poetry]]
 
-### [[digital_garden/03_Map/Narrative\|Narrative]]
-
-### [[digital_garden/03_Map/Narrative design\|Narrative design]]
 

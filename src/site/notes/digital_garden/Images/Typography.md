@@ -11,7 +11,7 @@
 
 ![5105135623269887762.jpg](/img/user/digital_garden/DB/5105135623269887762.jpg)
 
-![Pasted image 20250326100456.png](/img/user/Pasted%20image%2020250326100456.png)
+![Pasted image 20250326100456.png](/img/user/digital_garden/DB/Pasted%20image%2020250326100456.png)
 
 
 

@@ -3,4 +3,5 @@
 ---
 
 #### [[digital_garden/03_Map/Coding\|Coding]]
-#### [[digital_garden/03_Map/Software\|Software]]
+
+#### [[digital_garden/03_Map/Digital spaces\|Digital spaces]]
