@@ -27,3 +27,6 @@
 ![Pasted image 20250319023355.png](/img/user/digital_garden/DB/Pasted%20image%2020250319023355.png)
 
 ![Pasted image 20250325162933.png](/img/user/digital_garden/DB/Pasted%20image%2020250325162933.png)
+
+![photo_5127783531282541987_y.jpg](/img/user/digital_garden/DB/photo_5127783531282541987_y.jpg)
+

@@ -3,5 +3,5 @@
 ---
 
 
-- [[digital_garden/Philosophy of technology/Fundamento afectivo emotivo en Simondón\|Fundamento afectivo emotivo en Simondón]]
-- [[digital_garden/Philosophy of technology/Lo dividual\|Lo dividual]]
+- [[digital_garden/Subject-Matter/Philosophy of technology/Fundamento afectivo emotivo en Simondón\|Fundamento afectivo emotivo en Simondón]]
+- [[digital_garden/Subject-Matter/Philosophy of technology/Lo dividual\|Lo dividual]]
