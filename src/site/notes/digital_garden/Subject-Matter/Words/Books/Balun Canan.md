@@ -31,3 +31,5 @@
 ![Pasted image 20250327152050.png](/img/user/digital_garden/DB/Pasted%20image%2020250327152050.png)
 
 ![Pasted image 20250327152057.png](/img/user/digital_garden/DB/Pasted%20image%2020250327152057.png)
+
+#feminismo #indigenismo #Rosario_Castellanos
