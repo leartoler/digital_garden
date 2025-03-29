@@ -8,7 +8,7 @@
 
 ![Pasted image 20250318031212.png](/img/user/digital_garden/DB/Pasted%20image%2020250318031212.png)
 
-![Pasted image 20250318205433.png](/img/user/digital_garden/DB/Pasted%20image%2020250318205433.png)
+![Pasted image 20250318205433.webp](/img/user/digital_garden/DB/Pasted%20image%2020250318205433.webp)
 
 ![5105135623269887760.jpg](/img/user/digital_garden/DB/5105135623269887760.jpg)
 
