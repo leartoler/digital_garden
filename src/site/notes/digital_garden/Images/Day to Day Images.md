@@ -97,3 +97,18 @@
 ![photo_5141004196533874282_y.jpg](/img/user/digital_garden/DB/photo_5141004196533874282_y.jpg)
 
 ![photo_5141004196533874281_y.jpg](/img/user/digital_garden/DB/photo_5141004196533874281_y.jpg)
+<3
+
+![Pasted image 20250404163528.png](/img/user/digital_garden/DB/Pasted%20image%2020250404163528.png)
+
+![Pasted image 20250404163545.png](/img/user/digital_garden/DB/Pasted%20image%2020250404163545.png)
+
+![Pasted image 20250404163552.png](/img/user/digital_garden/DB/Pasted%20image%2020250404163552.png)
+
+![Pasted image 20250404163600.png](/img/user/digital_garden/DB/Pasted%20image%2020250404163600.png)
+
+![Pasted image 20250404163607.png](/img/user/digital_garden/DB/Pasted%20image%2020250404163607.png)
+
+
+
+
