@@ -16,6 +16,11 @@ Adding a series entry about [[Subject-Matter/Series/Severance\|Severance]].
 
 - Se sumaron las series de [[Subject-Matter/Series/Sunny\|Sunny]] y [[Subject-Matter/Series/Mythic Quest\|Mythic Quest]]
 - Se sumaron las películas [[Subject-Matter/Movies/Holland\|Holland]] y [[Subject-Matter/Movies/The war of the Worlds. Next Century\|The war of the Worlds. Next Century]]
+---
+2025-04-24
+
+Se suman dos películas [[Subject-Matter/Movies/My First Film\|My First Film]] y [[Subject-Matter/Movies/Grand Theft Hamlet\|Grand Theft Hamlet]]. La primera una gran obra. 
+
 
 
 
