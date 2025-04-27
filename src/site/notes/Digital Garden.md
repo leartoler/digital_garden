@@ -21,6 +21,10 @@ Adding a series entry about [[Subject-Matter/Series/Severance\|Severance]].
 
 Se suman dos películas [[Subject-Matter/Movies/My First Film\|My First Film]] y [[Subject-Matter/Movies/Grand Theft Hamlet\|Grand Theft Hamlet]]. La primera una gran obra. 
 
+---
+2025-04-27
+
+Anotaciones sobre [[Subject-Matter/Books/Kang, H. (2024). Imposible decir adiós\|Kang, H. (2024). Imposible decir adiós]]
 
 
 
