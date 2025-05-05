@@ -26,6 +26,11 @@ Se suman dos películas [[Subject-Matter/Movies/My First Film\|My First Film]] y
 
 Anotaciones sobre [[Subject-Matter/Books/Kang, H. (2024). Imposible decir adiós\|Kang, H. (2024). Imposible decir adiós]]
 
+---
+2025-05-05
+
+Anotaciones sobre [[Subject-Matter/Movies/Mickey 17\|Mickey 17]]
+
 
 
 
