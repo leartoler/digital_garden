@@ -248,7 +248,9 @@ Anotaciones sobre [[Subject-Matter/Books/Diderot (1785). Jacques el Fatalista\|D
 
 Anotaciones sobre [[Subject-Matter/Books/Coccia, Emanuele (2024). Filosofía de la casa. El espacio doméstico y la felicidad\|Coccia, Emanuele (2024). Filosofía de la casa. El espacio doméstico y la felicidad]]
 
-
+---
+2025-09-15
+Anotaciones sobre [[Subject-Matter/Movies/La regíon salvaje\|La regíon salvaje]], [[Subject-Matter/Movies/Superdeep\|Superdeep]], [[Subject-Matter/Movies/Los guantes mágicos\|Los guantes mágicos]], [[Subject-Matter/Movies/Mano de Obra\|Mano de Obra]], [[Subject-Matter/Movies/El hoyo en la cerca\|El hoyo en la cerca]], [[Subject-Matter/Movies/The Assessment\|The Assessment]]. 
 
 
 
