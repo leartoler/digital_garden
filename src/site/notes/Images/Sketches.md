@@ -36,6 +36,6 @@
 
 ![WhatsApp Image 2025-04-10 at 05.08.39_adf30b91.jpg](/img/user/DB/WhatsApp%20Image%202025-04-10%20at%2005.08.39_adf30b91.jpg)
 
-![Pasted image 20250825144307.png](/img/user/Pasted%20image%2020250825144307.png)
+![Pasted image 20250825144307.png](/img/user/Images/Pasted%20image%2020250825144307.png)
 
-![Pasted image 20250825144324.png](/img/user/Pasted%20image%2020250825144324.png)
+![Pasted image 20250825144324.png](/img/user/Images/Pasted%20image%2020250825144324.png)

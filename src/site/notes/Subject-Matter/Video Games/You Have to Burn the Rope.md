@@ -1,0 +1,8 @@
+---
+{"dg-publish":true,"permalink":"/subject-matter/video-games/you-have-to-burn-the-rope/"}
+---
+
+<iframe src="https://www.crazygames.com/game/you-have-to-burn-the-rope" allow="fullscreen" allowfullscreen="" style="height:100%;width:100%; aspect-ratio: 16 / 9; "></iframe>
+
+Juego que subvierte la complejidad del mismo juego
+
