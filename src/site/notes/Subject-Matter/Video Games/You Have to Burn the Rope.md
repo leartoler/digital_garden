@@ -6,3 +6,6 @@
 
 Juego que subvierte la complejidad del mismo juego
 
+Barr, P. (2017). _SNAKISM_ [Software]. [https://pippinbarr.com/SNAKISMS/info/](https://pippinbarr.com/SNAKISMS/info/)
+
+Barr, P. (2017). _SNAKISM_ (Versión browser) [Asd]. [https://pippinbarr.com/SNAKISMS/info/](https://pippinbarr.com/SNAKISMS/info/)
