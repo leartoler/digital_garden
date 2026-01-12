@@ -11,7 +11,6 @@
 
 ![OIP (1).webp](/img/user/Images/weapons/OIP%20(1).webp)
 
-![OIP 1.webp](/img/user/Images/weapons/OIP%201.webp)
 
 ![Weapons-Poster.webp](/img/user/Images/weapons/Weapons-Poster.webp)
 
